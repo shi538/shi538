@@ -24,7 +24,7 @@
 ### 📫 How to Reach Me
 - ✉️ Email: [gaurshivam9775@gmail.com]  
 - 💼 LinkedIn: [https://www.linkedin.com/in/shivam-gaur-248140345?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app ]  
-- 🧑‍💻 GitHub: [https://github.com/shi538](https://github.com/shi538)
+- 🧑‍💻 GitHub: [https://github.com/gaurshivam538](https://github.com/gaurshivam538)
 
 ---
 
